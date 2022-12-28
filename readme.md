@@ -8,13 +8,4 @@ Play the [quiz](https://replit.com/@ZunedAalim/end-game?embed=1&output=1) now.
 
 >>>>**_You can’t just give up! Is that what a dinosaur would do?" - Joey Tribiani_**
 
-
-<blockquote>
-<blockquote>
-<blockquote>
-<blockquote>
-<p><img src="https://i.gifer.com/1kRM.gif" alt="Image"></p>
-</blockquote>
-</blockquote>
-</blockquote>
-</blockquote>
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/121401363/209802618-3218cecd-1e1b-40f8-89f9-6bfa28654e55.gif)
